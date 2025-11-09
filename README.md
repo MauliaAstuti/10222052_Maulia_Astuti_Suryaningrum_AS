@@ -1,0 +1,2 @@
+# 10222052_Maulia_Astuti_Suryaningrum_AS
+Tugas UTS
